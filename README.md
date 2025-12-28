@@ -62,4 +62,4 @@ Mechanical Engineering graduate with a hands-on approach to problem-solving and 
 
 ---
 
-## 📥 [Download My Resume (PDF)]([./your-resume-file.pdf](https://drive.google.com/file/d/1wf8WrfJ45eR14BL0i4Ej7q0H5udZ8xpe/view?usp=sharing))
+## 📥 [Download My Resume (PDF)](https://drive.google.com/file/d/1wf8WrfJ45eR14BL0i4Ej7q0H5udZ8xpe/view?usp=sharing)
